@@ -1,0 +1,2 @@
+# Skripsipus
+buat skripsi
